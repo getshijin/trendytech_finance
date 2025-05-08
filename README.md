@@ -1,0 +1,1 @@
+# trendytech_finance
